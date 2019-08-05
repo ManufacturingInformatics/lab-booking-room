@@ -16,6 +16,4 @@ Please let us know if any question about these rules.
 
 Thank you
 
-Boyang S
-
 20190805
